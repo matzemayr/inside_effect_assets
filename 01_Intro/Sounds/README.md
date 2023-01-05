@@ -1,1 +1,0 @@
-# inside_effect_assets
